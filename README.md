@@ -11,3 +11,5 @@
 2. Only one person have one character, if you ask for two or more, then Ill ignore it.
 3. If youre voting yourself for Opinion based category (EXAMPLE: prettiest github,skin or whatever) then I'll be the judge for you. If I didn't like it, I'm not nominating you then LOL
 </details>
+
+[NOMINATE.](https://townofdeath.straw.page)
